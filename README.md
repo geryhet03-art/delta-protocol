@@ -1,2 +1,42 @@
 # delta-protocol
 RLF MVY AOL ULEA SVJR: UVAOPUN. KPNPA ADV: 3. AOL VSK JVTTPA YLTLTILYZ.
+
+COLZEBXQ THY BUK OCM: VURMN. RBNQG ZUFXL: 1. ARTQ /DKVBBIBZ
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
